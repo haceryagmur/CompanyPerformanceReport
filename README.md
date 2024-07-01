@@ -1,3 +1,3 @@
-![Ekran görüntüsü 2024-07-01 185301](https://github.com/haceryagmur/CompanyPerformanceReport/assets/170129236/5fe70d59-0c62-4f65-b376-09cf7e5f9355)
-![Ekran görüntüsü 2024-07-01 185223](https://github.com/haceryagmur/CompanyPerformanceReport/assets/170129236/7d69a8c4-bdb5-4340-9325-9864f394c21c)
-![Ekran görüntüsü 2024-07-01 185124](https://github.com/haceryagmur/CompanyPerformanceReport/assets/170129236/8fec6213-6865-4818-8bb7-2068cbd956e4)
+![Ekran görüntüsü 2024-07-01 193622](https://github.com/haceryagmur/CompanyPerformanceReport/assets/170129236/0df55d4f-6149-4e71-8125-9a04e22764b9)
+![Ekran görüntüsü 2024-07-01 193546](https://github.com/haceryagmur/CompanyPerformanceReport/assets/170129236/647a2807-4bc0-495c-a8d6-fc2abd36babd)
+![Ekran görüntüsü 2024-07-01 193422](https://github.com/haceryagmur/CompanyPerformanceReport/assets/170129236/4686e6ec-558e-4e75-8993-4cc0f5055fc8)
